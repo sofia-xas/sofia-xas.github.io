@@ -1,4 +1,3 @@
-# Sofia A.
 **She/Her** | **Data Researcher | Creative Technologist**  
 📍 Spain  
 
